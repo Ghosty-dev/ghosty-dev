@@ -1,7 +1,7 @@
 
 # 🚀 About Me
 
-I'mg Ghosty (he/him), 17 years. I like programming and i'm a very good bug maker
+I'm Ghosty (he/him), 17 years. I like programming and i'm a very good bug maker
 
 
 ## 🔗 Links
